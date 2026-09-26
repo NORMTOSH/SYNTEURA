@@ -1,1 +1,1 @@
-# SYNTEURA
+# SYNTÉURA
